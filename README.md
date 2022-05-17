@@ -17,4 +17,4 @@ De CoP richt zich op alle aspecten waarin technische analyse kan bijdragen aan b
 De Community of Practice Ecologische data-analyse wordt gehost door STOWA. En is ook te vinden op [Community of Practice Ecologische data-analyse EDA | STOWA](https://www.stowa.nl/onderwerpen/waterkwaliteit/van-kennis-naar-praktijk/community-practice-ecologische-data-analyse-eda)
 
 ## Bijeenkomsten
-Op 2 juni hebben we wer een nieuwe bijeenkomst. Aanmelden kan via [het aanmeldformulier](https://docs.google.com/forms/d/e/1FAIpQLSeeZX0Z6OFCqKfTHtxWIMDndgzzMbyposLg-__5vKJYrq9hlA/viewform).
+Op 2 juni hebben we weer een nieuwe bijeenkomst. Aanmelden kan via [het aanmeldformulier](https://docs.google.com/forms/d/e/1FAIpQLSeeZX0Z6OFCqKfTHtxWIMDndgzzMbyposLg-__5vKJYrq9hlA/viewform).
